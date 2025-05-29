@@ -118,8 +118,8 @@ For queries or collaboration, reach out to:
 **Junaid Hussain**  
 _B.Tech IT, Sharda University_  
 📍 Delhi, India  
-📧 Email: [Your Email]  
-🌐 LinkedIn: [Your LinkedIn URL]  
+📧 Email: [hussainjunaid506@gmail.com]  
+🌐 LinkedIn: [https://www.linkedin.com/in/junaid-hussain-536286306?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app]  
 
 ---
 
